@@ -1,3 +1,1 @@
 # test
-
-Skype: live:GermanBotMafia
